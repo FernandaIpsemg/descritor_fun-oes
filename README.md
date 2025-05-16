@@ -1,1 +1,0 @@
-# descritor_fun-oes
